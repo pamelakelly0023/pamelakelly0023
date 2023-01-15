@@ -1,6 +1,6 @@
 ### Olá! Sou Pamela 👋
 
-💻 Dev Jr 🏡 Brasileira 🌎 Paraná ✈️ Brasil
+💻 Dev Pleno 🏡 Brasileira 🌎 Paraná ✈️ Brasil
 
 📚 Tecnóloga em Análise e desenvolvimento de sistemas<br>
 
